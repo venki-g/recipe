@@ -8,4 +8,3 @@
 - Season with salt pepper.
 - Remove from heat and drizzle in sesame oil, tossing to mix.
 - Dish and serve hot sprinkled with sesame seeds.
-oh!
